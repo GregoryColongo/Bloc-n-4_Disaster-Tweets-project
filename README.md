@@ -1,12 +1,6 @@
+{{gregcolongo@yahoo.fr}}
 
-
-
-
-
-https://share.vidyard.com/watch/UMeVG5Ru5MexMc1enUiED8?
-
-
-
+{{https://share.vidyard.com/watch/UMeVG5Ru5MexMc1enUiED8?}}
 
 # Projet - Real or Not ? NLP with Disaster Tweets
 
